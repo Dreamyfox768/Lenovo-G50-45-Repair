@@ -20,3 +20,7 @@ BELOW SHOULD BE A TIKTOK VIDEO OF THE REPAIR :)
 
 
 
+
+https://github.com/user-attachments/assets/d9ce2915-ad8d-4b79-bac8-3e9f83020d14
+
+
